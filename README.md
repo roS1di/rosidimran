@@ -1,0 +1,2 @@
+# rosidimran
+Senyap dan Obyektif
